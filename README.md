@@ -1,1 +1,0 @@
-# OB math club page 
